@@ -1,1 +1,0 @@
-# tribute_SteveJobs
